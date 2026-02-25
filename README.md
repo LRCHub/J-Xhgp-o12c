@@ -1,0 +1,127 @@
+# Jack Harlow – Churchill Downs
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:09.69] Sometimes when I sit back and really let it register
+[00:13.12] I did everything I said I would, and said it first
+[00:16.75] I mean the world's in denial, but they all know what I'm headed for
+[00:20.56] Ah
+[00:21.56] 
+[00:21.81] We 'bout to feed these youngins to the metaverse
+[00:24.75] Meanwhile, I'm over here just tryna pen a verse
+[00:26.85] 'Cause I'm done bein' extra with the extroverts
+[00:29.73] The label used to wonder how I'm supposed to stand next to Vert
+[00:32.78] Prolly never thought that I would get these legs to work
+[00:35.34] I work hard, but hard shit don't need no extra work
+[00:37.69] That's why I show up in a sweatshirt and let it burn
+[01:03.69] 
+[00:40.23] The world's mine, I just say, "Fuck it, let it turn"
+[00:42.34] The girl's mine, I just say, "Fuck it, have a turn"
+[00:44.98] The G.O.A.T.s call me to the side like, "Can we have a word?"
+[00:47.65] I could've fronted but I did this shit how I preferred (I preferred)
+[00:50.53] Mmm, I know I should be humble but it's somethin' I just haven't learned
+[00:54.53] Soon enough I have to make these bad habits burn
+[00:57.68] Soon enough we 'bout to come and get the shit we earn
+[01:24.18] 
+[01:00.35] You not a fan now, but I remember when you used to be fanned out
+[01:04.85] I'm guessin' when the whole world loves you
+[01:07.17] People only got one way to stand out
+[01:09.02] All that time in the kitchen finally panned out
+[01:11.71] I put some flavor in a pot and took the bland out
+[01:14.22] I know my grandpa would have a heart attack if I pulled a hundred grand out
+[01:17.74] So I'm not gonna pull a hundred grand out
+[01:38.24] 
+[01:20.26] I'm hip-hop, do you fully understand?
+[01:22.72] Fully automatic with the jams and they don't jam
+[01:25.32] At the shows I'm 'bout to start handin' out programs
+[01:28.03] 'Cause y'all need to get with the program
+[01:30.31] I'm a grown ass man, call me pops
+[01:32.27] Fuck around and take your phone ass man
+[01:34.02] Everybody know Jack, but they don't know Jack, man
+[01:36.53] They just know I got the flows and the hoes and the packed out shows
+[02:10.53] 
+[01:40.23] Ain't too many cons when you playin' with the pros
+[01:42.68] 'Cept for how your life get exposed
+[01:44.35] But I make that sacrifice for the life that I chose
+[01:46.59] I know in Toronto they got soft for the roads
+[01:49.14] But school's closed in Kentucky, so I like when it snowed
+[01:51.59] The kids carry chopsticks not for rice in the bowl
+[01:54.17] School counselors all know how they life is at home
+[01:57.08] Cold like the Minnesota Vikings at home
+[02:16.58] 
+[01:59.28] Before I met Drizzy I knew he and I would get along
+[02:01.80] But it's hard to crack jokes when you really want advice
+[02:04.73] I mean what's it like to touch gold every time you touch a mic
+[02:07.37] Touchin' heights, no one gets a touch in life
+[02:09.46] Fuckin' right, young bachelor, what's a wife?
+[02:12.16] Once in a lifetime, 'til I say I want it twice
+[02:14.51] One of a kind, know your everything is one of mine
+[02:16.95] Wanted posters with my face, they know who I'm wanted by
+[02:44.95] 
+[02:22.42] Yeah
+[02:24.42] 
+[02:28.67] Yeah
+[02:30.67] 
+[02:30.12] Cold hearts and heated floors, no parental guidance I just see divorce
+[02:33.65] Therapy sessions, I'm in the waiting room, readin' Forbes
+[02:37.19] Abandonment issues I'm gettin' treated for
+[02:39.63] How much water can I fit under the bridge before it overflows?
+[02:43.00] My son's gotta learn that forgiveness is a lonely road
+[02:45.55] The cribs on his wheel like motor homes
+[03:05.05] 
+[02:47.26] Niggas love to try and test us like they know what we on
+[02:49.91] Chubb's got the magazine cover like Rolling Stone
+[02:52.28] 'Cause we already know how they rock, they throwin' stones
+[02:55.07] Whenever you gettin' bigger, there's growin' pains
+[02:57.29] I got enough pull to make the city start throwin' games
+[02:59.81] I'm out here makin' a mockery
+[03:02.20] I got my realtor out here playin' Monopoly
+[03:04.82] How can I address you when you don't own property?
+[03:06.99] They only finesse you when you don't move properly
+[03:31.99] 
+[03:09.66] Destined for the win, but you don't get a prize out of me
+[03:12.32] I'm destined for the top, but you can't get a rise out of me
+[03:14.73] 750 for the round, canaries, and they glitterin'
+[03:17.25] Man, you niggas drop trash, you littering
+[03:19.60] I'm overdelivering to the point, it's belittling
+[03:22.01] I mean, the PTSD is triggering, the profit is sickening
+[03:25.84] The stones is shimmering
+[03:26.90] Came from the north but I got hot as fuck, so ain't no shivering, yeah
+[04:01.90] 
+[03:31.74] Lucky me, people that don't fuck with me
+[03:34.12] Are linkin' up with people that don't fuck with me to fuck with me
+[03:36.87] This shit is getting ugly
+[03:37.41] And every situation is transactional
+[03:39.73] And every thing they sayin' is irrational
+[03:41.42] And every way they movin' is promotional
+[03:43.43] Everybody's actin' irreplaceable, it's like they ain't disposable
+[03:46.21] My urges for revenge are uncontrollable
+[03:48.24] I know we're gettin' older though, yeah
+[04:07.74] 
+[03:50.88] But I gotta get a nigga back for that, it's non-negotiable
+[03:53.70] It's not even debatable
+[03:54.88] I'm gettin' so rich, my music's not even relatable
+[03:57.28] I blow her head up, it's an inflatable
+[03:59.35] Baby blue G class, I feel like a kid again
+[04:02.14] Prayin' on my downfall don't make you religious, man
+[04:04.59] All I hear is plug talk comin' from middleman
+[04:06.74] All I hear is tall tales comin' from little men
+[04:30.24] 
+[04:09.31] When I say "Bitch", I'm very rarely referring to women
+[04:11.89] Most of the bitches I know are niggas, they not even women
+[04:14.25] I know that sounds like I'm being funny, I'm not even kidding
+[04:16.72] Same ones that say they run the game when they not even in it
+[04:20.13] To be honest, y'all financial situations my biggest motivation
+[04:23.24] And how you should take that statement is based on what you makin'
+[04:26.19] Whips and chains like a dominatrix, wap, pssh
+[04:48.69] 
+[04:28.84] If I see ya, I spit in ya faces, ha-tu
+[04:31.59] Daytonas with the green faces
+[04:33.54] Kentucky derby races, my presence in the spot is so abrasive
+[04:36.74] Box at the Churchill downs, that's motivation, yeah
+[04:41.49] And shorty like, "You know that boy Jack is goin' places"
+[05:09.99] 
+[04:45.19] I know
+[04:48.15] Yeah
+```
